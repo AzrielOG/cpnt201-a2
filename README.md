@@ -11,3 +11,6 @@ Azriels favourite website for clothes
 ## Derek's favorite site for call of duty content;
 
 [Charlie Intel](https://www.charlieintel.com/)
+
+Azriel's favourite cologne
+[One Million Paco Rabanne](https://www.fragrantica.com/perfume/Paco-Rabanne/1-Million-Lucky-48903.html)
