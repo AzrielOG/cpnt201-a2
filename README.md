@@ -7,3 +7,5 @@
 ## Derek's favorite site for call of duty content;
 
 [Charlie Intel](https://www.charlieintel.com/)
+
+_Shayan's favorite album:purple rain by prince_
